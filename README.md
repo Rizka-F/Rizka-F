@@ -5,5 +5,5 @@
 ##### - 🌱 Kicking some Excel, and Power BI has become my meal, now I'm a rookie in PostgreSQL
 ##### - 😄 I’m looking to collaborate on data analysis, government budget analysis, and also data visualisation
 ##### - 💬 Ask me about public finance analysis, data analysis, and Indonesia🗺️
-##### - 📫 How to reach me: www.linkedin.com/in/rizka-f-b0341b222 
+##### - 📫 How to reach me: rizkaf@proton.me 
 ##### - ⚡ Fun fact: I love One Piece, Bleach, Death Note, Sailormoon, Dragon Ball, and spicy food.
