@@ -5,4 +5,4 @@
 ##### - 😄 I’m looking to collaborate on data analysis, public finance analysis, and also data visualisation
 ##### - 💬 Ask me about public finance analysis, and Indonesia🗺️
 ##### - 📫 How to reach me: rizkaf@proton.me 
-##### - ⚡ Fun fact: I love One Piece, Bleach, Death Note, Sailormoon, Dragon Ball, Mie Ayam, and Spicy Food.
+##### - ⚡ Fun fact: I love One Piece, Bleach, Death Note, Sailormoon, Dragon Ball, Mie Ayam, Pizza, and Spicy Food.
