@@ -1,5 +1,5 @@
 ## Rizka Fitriyani
-#### Public policy and public finance researcher with more than five years of experience in government budgeting, public finance analysis, fiscal transparency, and policy analysis. Skilled in data management, including data collection, querying, analysis, and visualization using Excel and Power BI, and I'am rookie with PostgreSQL and R.
+#### Public policy and public finance researcher with more than five years of experience in government budgeting, public finance analysis, fiscal transparency, and policy analysis. Skilled in data management, including data collection, querying, analysis, and visualization using Excel and Power BI, and I'am rookie with PostgreSQL and R. I Also have experience as program assistant in several NGO.
 
 #####   I am interested in developing my skills in data analysis and open to collaboration on projects related to data analysis, Government/public finance analysis, and data visualization.
 
