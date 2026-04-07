@@ -18,7 +18,7 @@ Covering Preparing for Impactful Research, Ensuring Impactful Field  Research, A
 #
 ## Work Experience
 ####
-#### • The Reform Initiatives,  December 2025-Curently
+#### • The Reform Initiatives,  December 2025-Present
 As a **Program Assistant** at The Reform Initiatives, I supported program implementation by collecting, querying, and analyzing data for research and program activities. I also provided support in program implementation,  and coordinated day-to-day meetings and prepared Minutes of Meeting (MoM)
 #
 #### • Transparency International (TI) Indonesia,  Feb-June 2025
