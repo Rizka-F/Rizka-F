@@ -6,10 +6,10 @@
 ##### - 📫 How to reach me: rizkaf@proton.me 
 #
 ## Skills
-##### 1.	Microsoft Office (power point, word, excel, one note): **excellent**.
-##### 2. Power BI: **good**
+##### 1.	Microsoft Office (power point, word, excel, one note): **advance**.
+##### 2. Power BI: **intermediate**
 ##### 3. Postgre SQL: **rookie**
-##### 4. Language: Indonesia - Native speaker ; English - Writing (B2), Speaking (B2), Listening (C1), Reading (C1)
+##### 4. Language: Indonesia - Native speaker ; English - Working Proficiency
 #
 ## Certificate
 #### • **The World Bank Group’s Development Impact: Manage Successful Field Research**, March 2023.
